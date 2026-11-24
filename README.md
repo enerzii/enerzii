@@ -30,4 +30,4 @@ I enjoy understanding complex business problems, analyzing data, and translating
 
 ---
 
-*Bridging Business, Technology, and Data to create meaningful impact.*
+*Bridging Business, Technology, and Data to maximize output Value.*
